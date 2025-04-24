@@ -4,4 +4,4 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ  ㅤtengo en vista cantarte un "hasta la vista! <3'
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ ㅤㅤ![](https://files.catbox.moe/n6cixw.gif)  i love all my friends specially my gf please dont die gang
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ ㅤ ![](https://files.catbox.moe/n6cixw.gif)  i love all my friends specially my gf please dont die gang
