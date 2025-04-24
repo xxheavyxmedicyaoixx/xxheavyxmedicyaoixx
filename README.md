@@ -2,6 +2,6 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ  ㅤ ㅤno te vistas, no te hagas la nunca vista
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤtengo en vista cantarte un "hasta la vista! <3'
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  tengo en vista cantarte un "hasta la vista! <3'
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤ ㅤ![](https://files.catbox.moe/n6cixw.gif)  i love all my friends specially my gf please dont die gang
