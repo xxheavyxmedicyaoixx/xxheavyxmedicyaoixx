@@ -1,7 +1,11 @@
 ![](https://komarev.com/ghpvc/?username=2inq&color=ff0000&style=plastic&label=place+visits)
 
-más, dame un poco más
+oías los consejos, los ojos en el profesor
 
-quiero intoxicarme en vos
+había tanto sol sobre las cabezas
 
-arrancacorazones
+y no fue tan verdad, porque esos juegos, al final
+
+terminaron para otros con laureles y futuros
+
+y dejaron a mis amigos pateando piedras!
